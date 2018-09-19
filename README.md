@@ -3,4 +3,4 @@ Join Clyde Panther as you fight through the raucous horde of emoji minions, defe
 
 Website: https://EmojisIn.Space
 
-Download free on Apple App & Google Play Store ^__^
+Download free on Apple App & Google Play Store
